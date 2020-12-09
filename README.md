@@ -1,2 +1,1 @@
-# Supply-Mission2Goated
-srtgfxsrt
+# SupplyMission
